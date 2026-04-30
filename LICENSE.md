@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with top kaizen Script, the #1 Script. Includes auto-collect and god mode for unbeatable performance.
 
 
 
